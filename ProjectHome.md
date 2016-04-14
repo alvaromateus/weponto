@@ -1,0 +1,1 @@
+Sistema de ponto eletrônico, mas conhecido como e-ponto a um baixo custo e uma alta eficiência a cumprir com os seus objetivos, a qual visa ganhar uma parte do mercado que busca eficiência e principalmente segurança.
